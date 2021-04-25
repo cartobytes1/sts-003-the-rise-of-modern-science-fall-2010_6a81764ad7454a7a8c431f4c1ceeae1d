@@ -1,0 +1,1 @@
+# sts-003-the-rise-of-modern-science-fall-2010_6a81764ad7454a7a8c431f4c1ceeae1d
